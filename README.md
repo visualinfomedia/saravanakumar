@@ -22,4 +22,4 @@ Let's collaborate to turn your digital vision into a reality! Whether you're a s
 
 Working at <a href="https://www.visualinfomedia.com/">Visual Infomedia </a>
 
-Completed latest web development & digital marketing projects <a href="https://www.ayurcentre.sg">www.ayurcentre.sg</a>, <a href="https://www.ayurkart.com">www.ayurkart.com</a>
+Successfully managed the coordination of the most recent web development and digital marketing projects in collaboration with the Visualinfomedia Team. <a href="https://www.ayurcentre.sg">www.ayurcentre.sg</a>, <a href="https://www.ayurkart.com">www.ayurkart.com</a>
